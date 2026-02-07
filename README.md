@@ -29,7 +29,7 @@ Explorar fontes de dados relevantes sobre a transformação digital impulsionada
 
 **Gleison Mota**  
 Senior Backend Software Engineer | Dock  
-[LinkedIn](seu-linkedin) | [GitHub](seu-github)
+[LinkedIn](www.linkedin.com/in/gleisontmota)
 
 ## 📝 Bootcamp
 
